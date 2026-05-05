@@ -28,4 +28,4 @@ English (Fluent)
 ---
 
 ## 📫 Contact
-- LinkedIn: https://www.linkedin.com/in/pedro-xavier-a6948134a
+pedroleiteeh@gmail.com 
